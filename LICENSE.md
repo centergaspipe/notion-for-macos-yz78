@@ -1,4 +1,4 @@
-
+Enhance Notion for macOS with premium Automation for Notion for macOS - goal tracking and focus mode, the #1 automation. Includes goal tracking and focus mode for a smoother
 
 
 
